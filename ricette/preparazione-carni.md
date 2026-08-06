@@ -7,18 +7,19 @@ title: Preparazione Carni
 ## Semplice allo Yogurt
 
 🍗 *MARINATA UNIVERSALE PER GRIGLIATA O PADELLA* 🍖 [Video Fonte](https://www.youtube.com/shorts/VE0gzJcW2Vk)
+
 *(Perfetta per pollo e agnello, rende la carne tenerissima!)*
 
 📐 *PROPORZIONI BASE:*
-• *2 parti* di Yogurt (meglio se greco)
-• *1 parte* di Succo di Limone
-• *1 parte* di Olio d'oliva
+- *2 parti* di Yogurt (meglio se greco)
+- *1 parte* di Succo di Limone
+- *1 parte* di Olio d'oliva
 
 🌿 *DA AGGIUNGERE:*
-• Sale (fondamentale per insaporire)
-• Un pizzico di Zucchero (per la doratura/crosticina)
-• Aglio, Timo o Origano
-• Salsa piccante (facoltativa)
+- Sale (fondamentale per insaporire)
+- Un pizzico di Zucchero (per la doratura/crosticina)
+- Aglio, Timo o Origano
+- Salsa piccante (facoltativa)
 
 👨‍🍳 *COME FARE:*
 
@@ -30,13 +31,14 @@ title: Preparazione Carni
 # Salamoia
 
 🍗 *SALAMOIA PER POLLO JUICY E MORBIDO* 💧 [Video Fonte](https://www.youtube.com/watch?v=9BJjv-S7EgM)
+
 *(Metodo "Wet Brine" per un pollo succoso e insaporito fino all'osso!)*
 
 📐 *PROPORZIONI DELLA SALAMOIA (al 5%):*
-• *Acqua*
-• *Sale* (5% del peso dell'acqua, es. 50g per 1 litro)
-• *Bicarbonato di sodio* (un pizzico)
-• *Aromi a piacere* (erbe, spezie)
+- *Acqua*
+- *Sale* (5% del peso dell'acqua, es. 50g per 1 litro)
+- *Bicarbonato di sodio* (un pizzico)
+- *Aromi a piacere* (erbe, spezie)
 
 💡 *IL SEGRETO:*
 Il bicarbonato aiuta a sfaldare e ammorbidire le fibre della carne, rendendola tenerissima!
