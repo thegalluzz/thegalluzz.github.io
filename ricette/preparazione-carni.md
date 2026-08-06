@@ -6,7 +6,7 @@ title: Preparazione Carni
 
 ## Semplice allo Yogurt
 
-🍗 *MARINATA UNIVERSALE PER GRIGLIATA O PADELLA* 🍖
+🍗 *MARINATA UNIVERSALE PER GRIGLIATA O PADELLA* 🍖 [Video Fonte](https://www.youtube.com/shorts/VE0gzJcW2Vk)
 *(Perfetta per pollo e agnello, rende la carne tenerissima!)*
 
 📐 *PROPORZIONI BASE:*
@@ -29,7 +29,7 @@ title: Preparazione Carni
 
 # Salamoia
 
-🍗 *SALAMOIA PER POLLO JUICY E MORBIDO* 💧
+🍗 *SALAMOIA PER POLLO JUICY E MORBIDO* 💧 [Video Fonte](https://www.youtube.com/watch?v=9BJjv-S7EgM)
 *(Metodo "Wet Brine" per un pollo succoso e insaporito fino all'osso!)*
 
 📐 *PROPORZIONI DELLA SALAMOIA (al 5%):*
