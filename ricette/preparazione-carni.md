@@ -4,9 +4,7 @@ title: Preparazione Carni
 
 # Marinature
 
-## Semplice allo Yogurt
-
-🍗 *Marinata universale per grigliata o padella* 🍖 · [Video Fonte](https://www.youtube.com/shorts/VE0gzJcW2Vk)
+## 🍗 *Marinata universale per grigliata o padella* 🍖 · [Video Fonte](https://www.youtube.com/shorts/VE0gzJcW2Vk)
 
 *(Perfetta per pollo e agnello, rende la carne tenerissima!)*
 
@@ -32,7 +30,7 @@ title: Preparazione Carni
 
 # Salamoia
 
-🍗 *Salamoia per pollo juicy e morbido* 💧 · [Video Fonte](https://www.youtube.com/watch?v=9BJjv-S7EgM)
+## 🍗 *Salamoia per pollo juicy e morbido* 💧 · [Video Fonte](https://www.youtube.com/watch?v=9BJjv-S7EgM)
 
 *(Metodo "Wet Brine" per un pollo succoso e insaporito fino all'osso!)*
 
